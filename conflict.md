@@ -1,1 +1,1 @@
-See on algne tekst
+See on tudeng 2 versioon
